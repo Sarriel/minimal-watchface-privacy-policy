@@ -1,1 +1,0 @@
-# minimal-watchface-privacy-policy
